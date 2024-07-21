@@ -1,6 +1,6 @@
 hi i'm preeti panna- 👋 Hi, I’m @PREET322
 -I M INTERESTED IN coding  
--i m currently pursuing electrical engineering at veer suendra universuty of technology
+-i m currently pursuing electrical engineering at veer suendra university of technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  by my gmail account -preetipanna@2003.com
 - 😄 Pronouns:
